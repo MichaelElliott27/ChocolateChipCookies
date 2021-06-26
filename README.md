@@ -1,0 +1,1 @@
+This recipe is chocolate chip cookies but with walnuts. It is a traditional cookie but with walnuts as a twist.
